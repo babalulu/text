@@ -1,1 +1,1 @@
-Ariel you sexy bitch
+Tal is a pokemon master
